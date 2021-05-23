@@ -1,2 +1,3 @@
-# Adam_Fair_Portfolio
-Undergraduate Economics
+# Adam Dominic Fair
+Undergraduate Economics and Mathematics
+University of Minnesota. 2021
