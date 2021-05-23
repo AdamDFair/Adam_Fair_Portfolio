@@ -1,3 +1,2 @@
 # Adam Dominic Fair
-## Undergraduate Economics and Mathematics
-### University of Minnesota. 2021
+niversity of Minnesota 2021
